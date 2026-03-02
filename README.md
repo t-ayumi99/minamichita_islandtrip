@@ -1,0 +1,1 @@
+# minamichita_islandtrip
